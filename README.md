@@ -37,4 +37,4 @@
 ---
 
 ## Contact
-- Email : 본인 이메일
+- Email : urinamu10@gmail.com
