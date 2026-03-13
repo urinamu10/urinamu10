@@ -38,3 +38,4 @@
 
 ## Contact
 - Email : urinamu10@gmail.com
+- Notion : https://www.notion.so/2fb9c6fdb550805c86aada3dcbfe6d45?source=copy_link
